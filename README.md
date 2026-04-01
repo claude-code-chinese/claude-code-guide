@@ -1,4 +1,4 @@
-# Claude Code国内如何使用 ？最容易懂的 Claude Code 介绍与教学指南（2025年最新）
+# Claude Code国内如何使用 ？最容易懂的 Claude Code 介绍与教学指南（2026年最新）
 
 ## 什么是 Claude Code？
 
